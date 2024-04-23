@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SergioMoguel
+- 👀 I’m interested iN New learnings
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: Sergiomoguel680@gmail.com
+- 😄 Pronouns: He / HIM
+- ⚡ Fun fact: Love the Traditional Food, loving every minute of my life.
